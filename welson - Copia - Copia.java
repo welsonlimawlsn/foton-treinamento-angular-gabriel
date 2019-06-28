@@ -1,3 +1,0 @@
-// Arquivobjdjkabdjksabk  
-dndmlçwadklwnadbnwkadb kwabdkj
-dwakdnwjnjkdwkajb
